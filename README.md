@@ -21,3 +21,9 @@
 Script For ESX
 
 #-----ArtaDante#0617-----#
+
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
+`Change Nickname To Ep_AutoPilot Remove Main`
